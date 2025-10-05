@@ -1,1 +1,0 @@
-# weekend-plans-list
